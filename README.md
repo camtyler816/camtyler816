@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @camtyler816
-- 👀 I’m interested in Herpatology and my sea snake research
+- 👀 I’m interested in Herpatology and Sea Snakes
 - 🌱 I’m currently studying a ResM at the University of Plymouth 
 - 📫 How to reach me: cameron.tyler@plymouth.ac.uk
 - ⚡ Fun fact: I race motocross
